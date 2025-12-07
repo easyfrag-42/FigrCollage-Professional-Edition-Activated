@@ -1,0 +1,1 @@
+# FigrCollage-Professional-Edition-Activated
